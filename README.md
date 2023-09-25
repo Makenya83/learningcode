@@ -10,3 +10,5 @@ learnng skills
 power in the dark 
 face the eality 
 on this world
+the power of gold 
+in the world
